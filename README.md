@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about 
 - 📫 How to reach me: yuditaditya204@gmail.com
 - 😄 Pronouns:
--⚡ Fun fact
+- ⚡ Fun fact
 
